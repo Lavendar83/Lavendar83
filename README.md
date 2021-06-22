@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lavendar83
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on finding the seed code for my island.
+- 💞️ I’m looking to collaborate on finding the seed code for my island in Animal Crossing new horizons for the Nintendo Switch.
 - 📫 How to reach me; vaughnkc1986@gmail.com
 
 Thank you
